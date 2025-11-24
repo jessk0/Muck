@@ -8,3 +8,5 @@ Unsere Liebe zu Dir kennt kein Ende 🖤
 Die Familie ist unser wertvollster Besitz 🖤
 Wir sind immer da! Keine Kraft wird uns jemals trennen können!
 Wir lieben Dich für immer und ewig! 🖤
+
+![Schutzengel](https://raw.githubusercontent.com/jessk0/muck/main/IMG_5267.jpeg)
