@@ -38,9 +38,12 @@ in jedem neuen Tag.
 
 Wir lieben dich
 für immer
-und ewig.
+und ewig! 🖤🖤🖤
 
 
 [![Video ansehen](https://img.icons8.com/ios-filled/100/000000/play-button-circled.png)](https://youtu.be/IX37VRDqIMI?si=nw9kE7fWRUVBX0vM)
 
 ![Schutzengel](https://raw.githubusercontent.com/jessk0/muck/main/IMG_5267.jpeg)
+
+
+**„Wo ein Herz geliebt hat, bleibt immer ein Stück Licht zurück.“**
