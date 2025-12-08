@@ -5,6 +5,8 @@ Unsere Liebe zu Dir kennt kein Ende 🖤
 
 [🎶 ⏯️ 🖤](https://youtu.be/aryxeS4Wi5g)
 
+[![🖤](https://img.youtube.com/vi/aryxeS4Wi5g/hqdefault.jpg)](https://youtu.be/aryxeS4Wi5g)
+
 Die Familie ist unser wertvollster Besitz 🖤
 Wir sind immer da! Keine Kraft wird uns jemals trennen können!
 Wir lieben Dich für immer und ewig! 🖤
