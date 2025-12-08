@@ -9,6 +9,13 @@ Unsere Liebe zu Dir kennt kein Ende 🖤
 
 [![Play](play.png)](https://youtu.be/aryxeS4Wi5g)
 
+[<img src="data:image/svg+xml;utf8,
+<svg xmlns='http://www.w3.org/2000/svg' width='200' height='200' viewBox='0 0 200 200'>
+  <circle cx='100' cy='100' r='95' fill='black'/>
+  <polygon points='80,60 80,140 140,100' fill='white'/>
+</svg>
+" width="120">](https://youtu.be/aryxeS4Wi5g)
+
 Die Familie ist unser wertvollster Besitz 🖤
 Wir sind immer da! Keine Kraft wird uns jemals trennen können!
 Wir lieben Dich für immer und ewig! 🖤
