@@ -52,28 +52,9 @@ und ewig! 🖤🖤🖤
 ![memories](https://raw.githubusercontent.com/jessk0/muck/main/b916ab10-b424-47a7-925e-3f90c2c78605.jpeg)
 
 
-[🕯️ Zünde eine Kerze an](https://trauer.wochenspiegellive.de/traueranzeige/walter-benz-lh242-4477/gedenkkerzen)
-
-<p align="center">
-  <a href=">https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen"
-    <strong>🕯️ Eine Kerze anzünden</strong>
-  </a>
-</p>
 
 <p align="center">
   <a href="https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen" target="_blank">
-    <img src="https://img.shields.io/badge/🕯️%20Eine%20Kerze%20für%20Walter%20anzünden-6B4F3A?style=for-the-badge&labelColor=2F2A26" alt="Eine Kerze für Walter anzünden">
+    <img src="https://img.shields.io/badge/🕯️%20EINE%20KERZE%20FÜR%20WALTER%20ANZÜNDEN-6B4F3A?style=for-the-badge&labelColor=2F2A26" alt="Zünde eine Kerze an" width="600">
   </a>
 </p>
-
-<p align="center">
-  <a href="https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen" target="_blank">
-    <img src="https://img.shields.io/badge/🕯️%20EINE%20KERZE%20FÜR%20WALTER%20ANZÜNDEN-6B4F3A?style=for-the-badge&labelColor=2F2A26" alt="Eine Kerze für Walter anzünden" width="500">
-  </a>
-</p>
-
-<h1 align="center">
-  <a href="https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen" target="_blank">
-    🕯️ Eine Kerze für Walter anzünden
-  </a>
-</h1>
