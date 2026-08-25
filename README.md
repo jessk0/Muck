@@ -52,9 +52,9 @@ und ewig! 🖤🖤🖤
 ![memories](https://raw.githubusercontent.com/jessk0/muck/main/b916ab10-b424-47a7-925e-3f90c2c78605.jpeg)
 
 
-
 <p align="center">
   <a href="https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen" target="_blank">
-    <img src="https://img.shields.io/badge/🕯️%20ZÜNDE%20EINE%20KERZE%20AN%20-6B4F3A?style=for-the-badge&labelColor=6B6B6B" alt="Zünde eine Kerze an" width="500">
+    <img src="https://img.shields.io/badge/🕯️%20ZÜNDE%20EINE%20KERZE%20AN%20-666666?style=for-the-badge&labelColor=444444" alt="Zünde eine Kerze an" width="500">
   </a>
 </p>
+
