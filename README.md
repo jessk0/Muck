@@ -55,6 +55,6 @@ und ewig! 🖤🖤🖤
 
 <p align="center">
   <a href="https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen" target="_blank">
-    <img src="https://img.shields.io/badge/🕯️%20EINE%20KERZE%20FÜR%20WALTER%20ANZÜNDEN-6B4F3A?style=for-the-badge&labelColor=2F2A26" alt="Zünde eine Kerze an" width="600">
+    <img src="https://img.shields.io/badge/🕯️%20ZÜNDE%20EINE%20KERZE%20AN%20-6B4F3A?style=for-the-badge&labelColor=2F2A26" alt="Zünde eine Kerze an" width="500">
   </a>
 </p>
