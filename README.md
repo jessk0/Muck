@@ -47,3 +47,8 @@ und ewig! 🖤🖤🖤
 
 
 **„Wo ein Herz geliebt hat, bleibt immer ein Stück Licht zurück.“**
+
+
+![memories](https://raw.githubusercontent.com/jessk0/muck/main/b916ab10-b424-47a7-925e-3f90c2c78605.jpeg)
+
+
