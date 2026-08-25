@@ -53,3 +53,9 @@ und ewig! 🖤🖤🖤
 
 
 [🕯️ Zünde eine Kerze an](https://trauer.wochenspiegellive.de/traueranzeige/walter-benz-lh242-4477/gedenkkerzen)
+
+<p align="center">
+  <a href=">https://trauer.wochenspiegellive.de/traueranzeige/walter-benz/gedenkkerzen"
+    <strong>🕯️ Eine Kerze anzünden</strong>
+  </a>
+</p>
